@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Furkan
+### Hi I'm Furkan
 
 
 # Languages and Tools
